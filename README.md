@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zacchaeus-PL
+- 👀 I’m interested in games and gym.
+- 🌱 I’m currently learning python and mathematic.
+- 💞️ I’m looking to collaborate on my on company :)
+- 📫 How to reach me just massage me.
